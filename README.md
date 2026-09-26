@@ -1,4 +1,4 @@
-# Mindful Gate · หายใจก่อนไถ
+# Mindful Gate · พักจอ พักใจ
 
 หน้า Privacy Policy และ Support ของแอป Mindful Gate (GitHub Pages)
 
